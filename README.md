@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Shubham-010
 - 👀 I’m interested in Web and Software development 
-- 💞️ I’m looking to collaborate on -----
+- ☻ I’m looking to collaborate on -----
 - 📫 How to reach on - Mailto: Shubhamchikane0109@gmail.com
 
 <!---
